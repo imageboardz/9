@@ -2,7 +2,6 @@
 
 
 
-![demo](https://github.com/user-attachments/assets/f3013845-6981-467d-98df-3fc9edab853b)
 
 
 
