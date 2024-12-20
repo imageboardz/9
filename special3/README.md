@@ -1,5 +1,4 @@
 
-![Screenshot 2024-12-02 130844](https://github.com/user-attachments/assets/facefa1d-f53f-4518-be46-9c8229a29bc1)
 
 
 
